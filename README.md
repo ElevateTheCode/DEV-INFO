@@ -58,7 +58,7 @@ I am actively seeking opportunities to contribute, learn, and grow in the field 
 
 - 📧 Email: sowmitro2238@gmail.com  
 - 🔗 LinkedIn: https://www.linkedin.com/in/sowmitro-halder-badhon-85764325a/
-- 💬 WhatsApp: [Chat with me] https://wa.me/8801921964044
+- 💬 WhatsApp: [Real time Chat with me] https://wa.me/8801921964044
 ---
 
 
